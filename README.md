@@ -1,0 +1,138 @@
+# "*Mera naam*—Joker!"
+![img](meranaamjoker.jpg)
+
+## जीवन संगीत [^1] 
+
+"*Mera naam*—Joker!"
+
+the (in)complete story<br>
+by<br>
+Raj Rajoo Ranbir<br>
+<br>
+ॐ असतो मा सद्गमय ।<br>
+तमसो मा ज्योतिर्गमय ।<br>
+मृत्योर्माऽमृतं गमय ॥<br>
+ॐ शान्तिः शान्तिः शान्तिः ॥ <br>
+
+## Dedication
+
+To The Joker who lives within the heart every that[^2]
+
+## Contents
+
+Introduction <br>
+Prologue: THE MASK AND THE MAN <br>
+Part One: TO MADAM, WITH LOVE <br>
+Part Two: THE FAIRY AND THE FOOL ON A FLYING TRAPEZE <br>
+Part Three: FEVER OF SUCESS <br>
+Epilogue: POSTIVIELY NOT THE END! <br>
+SOUNDTRACK <br>
+ABOUT THE AUTHOR <br>
+CREDITS <br>
+Copyright <br>
+
+## Introduction  
+
+> [Mary]:  ‘You fell down so many times and everyone laughed at you,’ she said sympathetically. ‘Didn’t you feel bad?’<br>
+> [Rajoo]: ‘Why should I feel bad if people laugh?’ he replied. ‘It’s better to fall down and make people laugh than to stand up and make people suffer and cry.’<br>
+> [Mary]: ‘You sound like a little philosopher,’ she remarked. ‘What’s your name?’<br>
+> [Rajoo]: Rajoo raised his right hand in a characteristic gesture, and proclaimed, ‘*Mera naam*—Joker!’<br> 
+> [Mary]: ‘Joker?’ she asked in surprise. ‘What kind of a name is that?’<br>
+> [Rajoo]: ‘Miss Saheb, my real name is Ranbir Raj. My mother calls me Rajoo. But in school, all the boys call me Joker. I stumble and fall to make people laugh, that’s why! (Abbas 30)’<br>
+
+## Prologue: THE MASK AND THE MAN  
+
+> A huge drum, with the laughing face of a clown painted on it, was being beaten to the rhythm of a circus band. The blue dunce’s cap with little golden bells dangling from the top of it, the cheeks red like a pair of ripe tomatoes, all the teeth on display in a wide, wild grin—but there was sadness, too, in the baby-blue eye (Abbas 16).
+
+## Part One: TO MADAM, WITH LOVE 
+
+> An unmusical sound, a peculiar grating, whirring sound, as if made by the fluttering wings of the Bird of Time, broke through the soft music. As the veil of the past lifted, Rajoo found himself looking down at a snow-covered skating rink which seemed like a tank filled with milky white water in which many little fish were gliding (Abbas 30).
+
+## Part Two: THE FAIRY AND THE FOOL ON A FLYING TRAPEZE 
+
+> Rajoo drifted from place to place, along with his mother, two gypsies ever on the move. The boy grew into a young man, the young man into a man. The struggle for life, the privations and the deprivations that he endured had lined his face with deeply etched creases (Abbas 81).
+
+## Part Three: FEVER OF SUCESS  
+
+> Now he walked alone. He had no father, no mother, no friends, no neighbours. But the world was his home, and his heart was open to all strangers. Every man was his friend, his comrade, his neighbour (Abbas 146).
+
+## Epilogue: POSTIVIELY NOT THE END! 
+
+> Kal khel mein hum ho na ho <br>
+> Gardish mein taray rahengay sadaa <br>
+> Bhoologe tum, bhoolengay woh, <br>
+> Par hum tumharay rahengay sadaa. <br>
+><br>
+> Tomorrow my game I may or may not play, <br>
+> But in the sky the stars will remain forever, <br>
+> You will forget and so, perhaps, shall they, <br>
+> But yours I will remain forever (Abbas 202).
+
+## SOUNDTRACK
+
+1. "Ae Bhai Zara Dekh Ke Chalo"
+2. "Ang Lag Jaa Balma"
+3. "Daagh Na Lag Jaye"
+4. "Jane Kahan Gaye Wo Din"
+5. "Kehta Hai Joker Sara Zamana"
+6. "Sadke Heer Tujh Pe"
+7. "Kaate Na Kaate Raina"
+8. "Teetar Ke Do Aage Teetar"
+9. "Jeena Yahan Marna Yahan"
+10. "Aawaara Hoon"
+
+## ABOUT THE AUTHOR  
+
+###  CAST
+Rajoo (The Joker): RAJ KAPOOR <br>
+David: MANOJ KUMAR <br>
+Mary: SIMI GAREWAL <br>
+Young Rajoo: RISHI KAPOOR <br>
+Mahender: DHARMENDRA <br>
+Sher Singh: DARA SINGH <br>
+Marina: KSENIYA RYABINKINA <br>
+Meena: PADMINI <br>
+Kumar: RAJENDRA KUMAR <br>
+Rajoo’s Mother: ACHALA SACHDEV <br>
+Member of the Soviet State Circus: EDUARD SJEREDA <br>
+
+### CREW
+Directed, produced and edited by RAJ KAPOOR <br>
+Story and screenplay: K.A. ABBAS <br>
+Music: SHANKAR–JAIKISHAN <br>
+Lyrics: SHAILENDRA, HASRAT JAIPURI; NEERAJ, PREM DHAWAN <br>
+Cinematography: RADHU KARMAKAR <br>
+Art Direction: M.R. ACHREKAR <br>
+
+## CREDITS 
+
+_The Upanishads and Sri Sankara's Commentary: Isa, Kena & Mundaka_. Translated by S. Sitarama Sastri, Sir Ganganatha Jha. Natesen, 1898.
+Kapoor, Raj. _Mera Naam Joker_. R.K. Films, 1970.<br>
+Belsare, Malhar Bhikaji. _ગુજરાતી-અંગ્રેજી ડિકશનરી_ [Etymological Gujarati-English Dictionary]. 2nd Edition, Asian Educational Services, 2002.<br>
+Abbas, Khwaja Ahmad. _Mera Naam Joker: The Complete Story_. HarperCollins Publishers India, 2014.<br>
+Dykes, Timothy. <a href="https://unsplash.com/photos/red-rose-JnXHOvApcAI">"red-rose"</a>. Unsplash, 2018, unsplash.com/photos/red-rose-JnXHOvApcAI. 1 January 2023.
+
+## Copyright  
+
+Copyright © 2023 Raj Rajoo Ranbir
+
+All rights reserved.
+
+No part of this publication may be reproduced, stored in a retrieval
+system, stored in a database and / or published in any form or by any
+means, electronic, mechanical, photocopying, recording or otherwise,
+without the prior written permission of the publisher.
+
+Published in  કલા નગરી, *kalā nagarī*: "city of art" by મન, *man*: "mind"[^3]
+
+Cataloging in Publication Data
+
+Name: Raj Rajoo Ranbir, 2023— author<br>
+Title: "*Mera naam*—Joker!"/ Raj Rajoo Ranbir<br>
+ASIN:<br>
+Subjects: 1. Autobiography 2. Critique<br>
+
+
+[^1]: ये मेरा गीत जीवन संगीत, _ye mera geet jeevan sangeet_: "this is my song, life sung together" (_Mera Naam Joker_ 9:27-9:32)
+[^2]: O Sun, sole traveller of the Heavens, controller of all, Surya, son of Prajapati remove thy rays and gather up thy burning light. I behold thy glorious form; I am he, the Purusha within thee (_The Upanishads and Sri Sankara's Commentary_ 23).
+[^3]: તન-મન-ધન a. n. [See તન + મન + ધન] Lit. The body, the mind, and one’s wealth. Hence, 2. All that one loves; the highest object of one’s ambition (Belsare 577).
