@@ -7,7 +7,7 @@
 
 the (in)complete story<br>
 by<br>
-Raj Rajoo Ranbir<br>
+Raj "Rajoo" Ranbir<br>
 <br>
 ॐ असतो मा सद्गमय ।<br>
 तमसो मा ज्योतिर्गमय ।<br>
@@ -110,7 +110,7 @@ Dykes, Timothy. <a href="https://unsplash.com/photos/red-rose-JnXHOvApcAI">"red-
 
 ## Copyright  
 
-Copyright © 2023 Raj Rajoo Ranbir
+Copyright © 2023 Raj "Rajoo" Ranbir
 
 All rights reserved.
 
@@ -123,8 +123,8 @@ Published in  કલા નગરી, *kalā nagarī*: "city of art" by મન, 
 
 Cataloging in Publication Data
 
-Name: Raj Rajoo Ranbir, 2023— author<br>
-Title: "*Mera naam*—Joker!"/ Raj Rajoo Ranbir<br>
+Name: Raj "Rajoo" Ranbir, 2023— author<br>
+Title: "*Mera naam*—Joker!"/ Raj "Rajoo" Ranbir<br>
 ASIN:<br>
 Subjects: 1. Autobiography 2. Critique<br>
 
