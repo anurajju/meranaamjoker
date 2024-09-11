@@ -3,7 +3,7 @@
 
 ## जीवन संगीत [^1] 
 
-"*Mera naam*—Joker!"
+"*Mera naam*—Joker!"[^3]
 
 the (in)complete story<br>
 by<br>
@@ -33,12 +33,7 @@ Copyright <br>
 
 ## Introduction  
 
-> [Mary]:  ‘You fell down so many times and everyone laughed at you,’ she said sympathetically. ‘Didn’t you feel bad?’<br>
-> [Rajoo]: ‘Why should I feel bad if people laugh?’ he replied. ‘It’s better to fall down and make people laugh than to stand up and make people suffer and cry.’<br>
-> [Mary]: ‘You sound like a little philosopher,’ she remarked. ‘What’s your name?’<br>
-> [Rajoo]: Rajoo raised his right hand in a characteristic gesture, and proclaimed, ‘*Mera naam*—Joker!’<br> 
-> [Mary]: ‘Joker?’ she asked in surprise. ‘What kind of a name is that?’<br>
-> [Rajoo]: ‘Miss Saheb, my real name is Ranbir Raj. My mother calls me Rajoo. But in school, all the boys call me Joker. I stumble and fall to make people laugh, that’s why! (Abbas 30)’<br>
+> Raj Kapoor: I don't like to talk about my work except to those who understand what I am trying to do. In twenty years of film-making I have made ten films which, taken as a whole, embody more than just an inkling of the philosophy of Raj Kapoor. All that work led surely and inevitably to the making of Mera Naam Joker, which is a saga of life as seen through the eyes of the entertainers. It is a saga of life as it is lived in the spotlight, as we film people live it. And on the reverse side, it is also a saga of life as it is beyond the spotlight - again, as we film people experience it. It is a spiritual odyssey of the Soul of Man; of his aspirations and his essential loveliness; of his joys and sorrows; of his loves and frustrations; of the smile painted with grease paint on his face and the painful grimace concealed within it...(Nanda 75)
 
 ## Prologue: THE MASK AND THE MAN  
 
@@ -107,8 +102,9 @@ Art Direction: M.R. ACHREKAR <br>
 ## CREDITS 
 
 _The Upanishads and Sri Sankara's Commentary: Isa, Kena & Mundaka_. Translated by S. Sitarama Sastri, Sir Ganganatha Jha. Natesen, 1898.
-Kapoor, Raj. _Mera Naam Joker_. R.K. Films, 1970.<br>
+_Mera Naam Joker_. Directed by Raj Kapoor, R.K. Films, 1970.<br>
 Belsare, Malhar Bhikaji. _ગુજરાતી-અંગ્રેજી ડિકશનરી_ [Etymological Gujarati-English Dictionary]. 2nd Edition, Asian Educational Services, 2002.<br>
+Nanda,Ritu. _Raj Kapoor Speaks_. Penguin Books of India, 2002. 
 Abbas, Khwaja Ahmad. _Mera Naam Joker: The Complete Story_. HarperCollins Publishers India, 2014.<br>
 Dykes, Timothy. <a href="https://unsplash.com/photos/red-rose-JnXHOvApcAI">"red-rose"</a>. Unsplash, 2018, unsplash.com/photos/red-rose-JnXHOvApcAI. 1 January 2023.
 
@@ -123,7 +119,7 @@ system, stored in a database and / or published in any form or by any
 means, electronic, mechanical, photocopying, recording or otherwise,
 without the prior written permission of the publisher.
 
-Published in  કલા નગરી, *kalā nagarī*: "city of art" by મન, *man*: "mind"[^3]
+Published in  કલા નગરી, *kalā nagarī*: "city of art" by મન, *man*: "mind"[^4]
 
 Cataloging in Publication Data
 
@@ -135,4 +131,5 @@ Subjects: 1. Autobiography 2. Critique<br>
 
 [^1]: ये मेरा गीत जीवन संगीत, _ye mera geet jeevan sangeet_: "this is my song, life sung together" (_Mera Naam Joker_ 9:27-9:32)
 [^2]: O Sun, sole traveller of the Heavens, controller of all, Surya, son of Prajapati remove thy rays and gather up thy burning light. I behold thy glorious form; I am he, the Purusha within thee (_The Upanishads and Sri Sankara's Commentary_ 23).
-[^3]: તન-મન-ધન a. n. [See તન + મન + ધન] Lit. The body, the mind, and one’s wealth. Hence, 2. All that one loves; the highest object of one’s ambition (Belsare 577).
+[^3]: Rajoo raised his right hand in a characteristic gesture, and proclaimed, ‘Mera naam—Joker! (Abbas 30)’
+[^4]: તન-મન-ધન a. n. [See તન + મન + ધન] Lit. The body, the mind, and one’s wealth. Hence, 2. All that one loves; the highest object of one’s ambition (Belsare 577).
