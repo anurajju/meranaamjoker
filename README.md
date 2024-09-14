@@ -124,5 +124,5 @@ Subjects: 1. Autobiography 2. Critique<br>
 
 [^1]: ये मेरा गीत जीवन संगीत, _ye mera geet jeevan sangeet_: "this is my song, life sung together" (_Mera Naam Joker_ 9:27-9:32)
 [^2]: O Sun, sole traveller of the Heavens, controller of all, Surya, son of Prajapati remove thy rays and gather up thy burning light. I behold thy glorious form; I am he, the Purusha within thee (_The Upanishads and Sri Sankara's Commentary_ 23).
-[^3]: Rajoo raised his right hand in a characteristic gesture, and proclaimed, ‘Mera naam—Joker! (Abbas 30)’
+[^3]: Rajoo raised his right hand in a characteristic gesture, and proclaimed, ‘Mera naam—Joker! (Abbas 25)’
 [^4]: તન-મન-ધન a. n. [See તન + મન + ધન] Lit. The body, the mind, and one’s wealth. Hence, 2. All that one loves; the highest object of one’s ambition (Belsare 577).
