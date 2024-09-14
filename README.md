@@ -37,23 +37,24 @@ Copyright <br>
 
 ## Prologue: THE MASK AND THE MAN  
 
-> A huge drum, with the laughing face of a clown painted on it, was being beaten to the rhythm of a circus band. The blue dunce’s cap with little golden bells dangling from the top of it, the cheeks red like a pair of ripe tomatoes, all the teeth on display in a wide, wild grin—but there was sadness, too, in the baby-blue eye (Abbas 17).
+> A HUGE DRUM, with the laughing face of a clown painted on it, was being beaten to the rhythm of a circus band. The blue dunce’s cap with little golden bells dangling from the top of it, the cheeks red like a pair of ripe tomatoes, all the teeth on display in a wide, wild grin—but there was sadness, too, in the baby-blue eye (Abbas 7).
 
 ## Part One: TO MADAM, WITH LOVE 
 
-> An unmusical sound, a peculiar grating, whirring sound, as if made by the fluttering wings of the Bird of Time, broke through the soft music. As the veil of the past lifted, Rajoo found himself looking down at a snow-covered skating rink which seemed like a tank filled with milky white water in which many little fish were gliding (Abbas 32).
+> THE SOFT music was impregnated with an unmusical sound, a peculiar grating, whirring sound, as if made by the fluttering wings of the Bird of Time. As the veil of the past lifted, Rajoo found himselt looking down at a snow-covered skating rink which seemed a tank filled with milky-white water in which
+many little fishes were gliding. (Abbas 22).
 
 ## Part Two: THE FAIRY AND THE FOOL ON A FLYING TRAPEZE 
 
-> Rajoo drifted from place to place, along with his mother, two gypsies ever on the move. The boy grew into a young man, the young man into a man. The struggle for life, the privations and the deprivations that he endured had lined his face with deeply etched creases (Abbas 88).
+> RAJOO DRIFTED FROM place to place, along with his mother, two gypsies ever on the move. The boy grew into a young man, the young man into a man. The struggle for life, the privations and the deprivations that he endured had lined his face with deeply etched creases (Abbas 80).
 
 ## Part Three: FEVER OF SUCESS  
 
-> Now he walked alone. He had no father, no mother, no friends, no neighbours. But the world was his home, and his heart was open to all strangers. Every man was his friend, his comrade, his neighbour (Abbas 159).
+> NOW he walked alone. He had no father, no mother, no friends, no neighbours. But the world was his home, and his heart was open to all strangers. Every man was his friend, his comrade, his neighbour (Abbas 155).
 
 ## Epilogue: POSTIVIELY NOT THE END! 
 
-> As the wave of music swept up, the great show, starring the old joker, Rajoo, was still going on in the circus. The fragile glass heart still lay splintered on the ground, and Rajoo—the old joker—was carefully, lovingly, collecting the fragments and loading them in a hand-cart, which he then painstakingly pushed out of the ring (Abbas 221).
+> AS THE WAVE of music swept up, the great show, starring the old joker, Rajoo, was still going on in the circus. The fragile glass heart still lay splintered on the ground, and Rajoo—the old joker—was carefully, lovingly, collecting the fragments and loading them in a hand-cart, which he then painstakingly pushed out of the ring (Abbas 220).
 
 ## SOUNDTRACK
 
@@ -95,9 +96,9 @@ Art Direction: M.R. ACHREKAR <br>
 
 _The Upanishads and Sri Sankara's Commentary: Isa, Kena & Mundaka_. Translated by S. Sitarama Sastri, Sir Ganganatha Jha. Natesen, 1898.
 _Mera Naam Joker_. Directed by Raj Kapoor, R.K. Films, 1970.<br>
+Abbas, Khwaja Ahmad. _Mera Naam Joker: The Complete Story_. Hind Pocket Books, 1970.<br>
 Belsare, Malhar Bhikaji. _ગુજરાતી-અંગ્રેજી ડિકશનરી_ [Etymological Gujarati-English Dictionary]. 2nd Edition, Asian Educational Services, 2002.<br>
 Nanda,Ritu. _Raj Kapoor Speaks_. Penguin Books of India, 2002.<br>
-Abbas, Khwaja Ahmad. _Mera Naam Joker: The Complete Story_. HarperCollins Publishers India, 2014.<br>
 Dykes, Timothy. <a href="https://unsplash.com/photos/red-rose-JnXHOvApcAI">"red-rose"</a>. Unsplash, 2018, unsplash.com/photos/red-rose-JnXHOvApcAI. 1 January 2023.
 
 ## Copyright  
