@@ -94,7 +94,7 @@ Art Direction: M.R. ACHREKAR <br>
 
 ## CREDITS 
 
-_The Upanishads and Sri Sankara's Commentary: Isa, Kena & Mundaka_. Translated by S. Sitarama Sastri, Sir Ganganatha Jha. Natesen, 1898.
+_The Upanishads and Sri Sankara's Commentary: Isa, Kena & Mundaka_. Translated by S. Sitarama Sastri, Sir Ganganatha Jha. Natesen, 1898.<br>
 _Mera Naam Joker_. Directed by Raj Kapoor, R.K. Films, 1970.<br>
 Abbas, Khwaja Ahmad. _Mera Naam Joker: The Complete Story_. Hind Pocket Books, 1970.<br>
 Belsare, Malhar Bhikaji. _ગુજરાતી-અંગ્રેજી ડિકશનરી_ [Etymological Gujarati-English Dictionary]. 2nd Edition, Asian Educational Services, 2002.<br>
