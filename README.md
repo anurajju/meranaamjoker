@@ -37,31 +37,23 @@ Copyright <br>
 
 ## Prologue: THE MASK AND THE MAN  
 
-> A huge drum, with the laughing face of a clown painted on it, was being beaten to the rhythm of a circus band. The blue dunce’s cap with little golden bells dangling from the top of it, the cheeks red like a pair of ripe tomatoes, all the teeth on display in a wide, wild grin—but there was sadness, too, in the baby-blue eye (Abbas 16).
+> A huge drum, with the laughing face of a clown painted on it, was being beaten to the rhythm of a circus band. The blue dunce’s cap with little golden bells dangling from the top of it, the cheeks red like a pair of ripe tomatoes, all the teeth on display in a wide, wild grin—but there was sadness, too, in the baby-blue eye (Abbas 17).
 
 ## Part One: TO MADAM, WITH LOVE 
 
-> An unmusical sound, a peculiar grating, whirring sound, as if made by the fluttering wings of the Bird of Time, broke through the soft music. As the veil of the past lifted, Rajoo found himself looking down at a snow-covered skating rink which seemed like a tank filled with milky white water in which many little fish were gliding (Abbas 30).
+> An unmusical sound, a peculiar grating, whirring sound, as if made by the fluttering wings of the Bird of Time, broke through the soft music. As the veil of the past lifted, Rajoo found himself looking down at a snow-covered skating rink which seemed like a tank filled with milky white water in which many little fish were gliding (Abbas 32).
 
 ## Part Two: THE FAIRY AND THE FOOL ON A FLYING TRAPEZE 
 
-> Rajoo drifted from place to place, along with his mother, two gypsies ever on the move. The boy grew into a young man, the young man into a man. The struggle for life, the privations and the deprivations that he endured had lined his face with deeply etched creases (Abbas 81).
+> Rajoo drifted from place to place, along with his mother, two gypsies ever on the move. The boy grew into a young man, the young man into a man. The struggle for life, the privations and the deprivations that he endured had lined his face with deeply etched creases (Abbas 88).
 
 ## Part Three: FEVER OF SUCESS  
 
-> Now he walked alone. He had no father, no mother, no friends, no neighbours. But the world was his home, and his heart was open to all strangers. Every man was his friend, his comrade, his neighbour (Abbas 146).
+> Now he walked alone. He had no father, no mother, no friends, no neighbours. But the world was his home, and his heart was open to all strangers. Every man was his friend, his comrade, his neighbour (Abbas 159).
 
 ## Epilogue: POSTIVIELY NOT THE END! 
 
-> Kal khel mein hum ho na ho <br>
-> Gardish mein taray rahengay sadaa <br>
-> Bhoologe tum, bhoolengay woh, <br>
-> Par hum tumharay rahengay sadaa. <br>
-><br>
-> Tomorrow my game I may or may not play, <br>
-> But in the sky the stars will remain forever, <br>
-> You will forget and so, perhaps, shall they, <br>
-> But yours I will remain forever (Abbas 202).
+> As the wave of music swept up, the great show, starring the old joker, Rajoo, was still going on in the circus. The fragile glass heart still lay splintered on the ground, and Rajoo—the old joker—was carefully, lovingly, collecting the fragments and loading them in a hand-cart, which he then painstakingly pushed out of the ring (Abbas 221).
 
 ## SOUNDTRACK
 
